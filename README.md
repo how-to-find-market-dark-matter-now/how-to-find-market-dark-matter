@@ -22,4 +22,6 @@ Remember that anonymity is of utmost importance when navigating these digital sp
 
 <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/media/picture.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://5whwnbcloidnmppwh4eklj3qe5p4iilsud3kc2igjh3rqzmz6tjjvmqd.onion"><img src="/media/help.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  26.06.2025 09:06 Paths corrected
+
+
+Update:  04.07.2025 04:30
