@@ -38,4 +38,6 @@ Remember that anonymity is of utmost importance when navigating these digital sp
 
 
 
-Update:  08/13/2025 Link is now live and reachable
+
+
+Update:  19 August Awesome! The link is up and running.
