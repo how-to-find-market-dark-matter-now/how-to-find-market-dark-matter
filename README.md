@@ -40,4 +40,6 @@ Remember that anonymity is of utmost importance when navigating these digital sp
 
 
 
-Update:  19 August Awesome! The link is up and running.
+
+
+Update:  23 August
