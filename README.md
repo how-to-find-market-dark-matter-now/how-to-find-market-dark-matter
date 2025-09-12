@@ -42,4 +42,6 @@ Remember that anonymity is of utmost importance when navigating these digital sp
 
 
 
-Update:  23 August
+
+
+Update:  12 September link is accessible again
